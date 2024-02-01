@@ -2,7 +2,7 @@
 - 👀 I’m interested in learn about this area
 - 🌱 I’m currently learning Computer Sciense 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me "juliaalaiza@gmail.com" :)
+- 📫 How to reach me 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I really don't know what I'm doing here... but, come on!
 
